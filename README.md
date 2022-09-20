@@ -4,4 +4,4 @@
 - 👯 I’m looking to collaborate on ...
 - 📫 How to reach me: ckqlss@gmail.com
 
-My Website: https://binee.com
+My Website: https://binee.io
